@@ -14,3 +14,6 @@ Harmful: Ai takes away our creativity, People are not writing their own essays (
 
 One positive thing about computer science is that it helps up keep track of votes and percentages of voters.
 One negative impact about computer science is that votes could be hacked, and rigged
+
+# November 17, 2024
+During break we have Thanksgivings
