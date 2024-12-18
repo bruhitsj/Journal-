@@ -17,6 +17,9 @@ One negative impact about computer science is that votes could be hacked, and ri
 
 # November 17, 2024
 During break we have Thanksgivings
+# December 9, 2024
+I believe that Brain rot is just how it sounds, its just stuff to fill your mind and take memory space.
+Brain rot has taught us nothing, it is only humor and a new vocabulary that makes a big difference in how we speak.
 
 # December 16, 2024
 im excited for winter break because, Skibidi Skibidi Hawk Tuah Hawk, Skibidi King Who Gives Out Blunkings Edging, And Gooning And Learning To Munt, Dripping Cheese All Over My Lunch
