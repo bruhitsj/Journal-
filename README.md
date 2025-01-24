@@ -23,3 +23,10 @@ Brain rot has taught us nothing, it is only humor and a new vocabulary that make
 
 # December 16, 2024
 im excited for winter break because, Skibidi Skibidi Hawk Tuah Hawk, Skibidi King Who Gives Out Blunkings Edging, And Gooning And Learning To Munt, Dripping Cheese All Over My Lunch
+
+# January 13, 2025
+
+I believe AI is limiting job opportunities for citizens, everybody would choose robots over humans because they only require electricity and theyd have cheap repairs. To adapt to this enviorment i would work a job that requires alot of change in plans and a flexible schedule.
+
+# January 22, 2025
+
