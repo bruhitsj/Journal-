@@ -29,4 +29,5 @@ im excited for winter break because, Skibidi Skibidi Hawk Tuah Hawk, Skibidi Kin
 I believe AI is limiting job opportunities for citizens, everybody would choose robots over humans because they only require electricity and theyd have cheap repairs. To adapt to this enviorment i would work a job that requires alot of change in plans and a flexible schedule.
 
 # January 22, 2025
-
+I feel that government intervention may negatively impact Tech companies because the government is full of elderly people who have their own biases even if it's not admitted. To address security concerns Tiktok Should sell PART of the company to america so that the millenials have their answer.
+One thing ive learned is that the govt is desperate for your information
