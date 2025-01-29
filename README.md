@@ -31,3 +31,11 @@ I believe AI is limiting job opportunities for citizens, everybody would choose 
 # January 22, 2025
 I feel that government intervention may negatively impact Tech companies because the government is full of elderly people who have their own biases even if it's not admitted. To address security concerns Tiktok Should sell PART of the company to america so that the millenials have their answer.
 One thing ive learned is that the govt is desperate for your information
+
+# January 29, 2025
+| Name     | Car | Mistake |
+| :------- | :-- | :------ |
+| Jimmy    |     |         |
+| Kayla    |     |         |
+| Bart     |     |         |
+| Harrison |     |         |
