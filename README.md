@@ -40,4 +40,6 @@ One thing ive learned is that the govt is desperate for your information
 | Bart     |     |         |
 | Harrison |     |         |
 
-# Febuary 3, 2025
+
+# March 31, 2025
+Right now as i am preparing for STAAR ive been feeling confident in my abillity to pass, Right now one of my main concerns is being consistent with my work. One thing i could do to help my stress is to take my mind off my work, re-think my mindset and solve. For the rest of the school year, i want to do my work, i know i could get it done, i just have to take the time. As for people i can talk to about things, i have a group of friends where we just talk about our problems and try to solve them.
