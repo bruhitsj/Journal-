@@ -12,7 +12,7 @@ Harmful: Ai takes away our creativity, People are not writing their own essays (
 
 # October 28, 2024
 
-One positive thing about computer science is that it helps up keep track of votes and percentages of voters.
+One positive thing about computer science is that it helps up keep track of votes and per Y centages of voters.
 One negative impact about computer science is that votes could be hacked, and rigged
 
 # November 17, 2024
@@ -43,3 +43,6 @@ One thing ive learned is that the govt is desperate for your information
 
 # March 31, 2025
 Right now as i am preparing for STAAR ive been feeling confident in my abillity to pass, Right now one of my main concerns is being consistent with my work. One thing i could do to help my stress is to take my mind off my work, re-think my mindset and solve. For the rest of the school year, i want to do my work, i know i could get it done, i just have to take the time. As for people i can talk to about things, i have a group of friends where we just talk about our problems and try to solve them.
+
+# April 14, 2025
+This week us a free WEEEEEEEEEEEEKKKK!!!!!!!
