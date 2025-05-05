@@ -45,4 +45,8 @@ One thing ive learned is that the govt is desperate for your information
 Right now as i am preparing for STAAR ive been feeling confident in my abillity to pass, Right now one of my main concerns is being consistent with my work. One thing i could do to help my stress is to take my mind off my work, re-think my mindset and solve. For the rest of the school year, i want to do my work, i know i could get it done, i just have to take the time. As for people i can talk to about things, i have a group of friends where we just talk about our problems and try to solve them.
 
 # April 14, 2025
-This week us a free WEEEEEEEEEEEEKKKK!!!!!!!
+This week is a free WEEEEEEEEEEEEKKKK!!!!!!!
+
+# May 5, 2025
+Firstly i think the gorilla would lose, its muscles are made for short bursts maening it does not have stamina. Secondly I dont think this is a wise decision, although it would lose, the gorrilla is taking a few limbs with him.
+Lastly the people making these kinda posts dont use logic, they just discuss whats on their minds.
