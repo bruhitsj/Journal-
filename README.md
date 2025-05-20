@@ -50,3 +50,6 @@ This week is a free WEEEEEEEEEEEEKKKK!!!!!!!
 # May 5, 2025
 Firstly i think the gorilla would lose, its muscles are made for short bursts maening it does not have stamina. Secondly I dont think this is a wise decision, although it would lose, the gorrilla is taking a few limbs with him.
 Lastly the people making these kinda posts dont use logic, they just discuss whats on their minds.
+
+# May 20, 2025
+YEAAAAAHAHAHHAHHAHAHAHHAHAHAHAHAHHAHAHA RAAHAHAHAHAHHAHAHAHAHHAHAHAHAHA
